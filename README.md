@@ -5,7 +5,7 @@ Hantech klima, modern tasarım anlayışı ve dengeli performansı ile hem ev he
 Hantech klima modelleri, bu ihtiyaçlara uygun olarak geliştirilmiş olup farklı alan büyüklüklerine göre seçenekler sunar.
 
 👉 Detaylı bilgi için:
-https://hdklima.com.tr/
+[Hantech klima modelleri](https://hdklima.com.tr/)
 
 ---
 
